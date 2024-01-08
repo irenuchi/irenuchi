@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on people that want to learn new things
 - 📫 How to reach me in my instagram ireenefeern_
 - 😄 Pronouns: her y no se que más hay que poner
-- ⚡ Fun fact: no se cositas you know me lo paso chachi piruli aves mes amis and the tipic things like go to the beach ou mange una pedazo hamburguesa del macdonals.
-- Pd: tengo el b1 de ingles pero no lo parece pero no preocuparse si me contactais en ingles I understand you. 
+- ⚡ Fun fact: no se cositas tu sabe me lo paso chachi piruli aves mes amis and the tipic things like go to the beach o comerme una pedazo hamburguesa del macdonals.
+- Pd: tengo el b1 de ingles pero no lo parece pero no preocuparse si me contactais en ingles algo entendere 
 
 <!---
 irenuchi/irenuchi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
